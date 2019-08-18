@@ -1,1 +1,0 @@
-# ccg-newsletter-ghp
